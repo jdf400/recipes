@@ -1,18 +1,41 @@
-2large Russet potatoes (about 1 pound), scrubbed and cut lengthwise into quarters
-1 large onion (8 ounces), peeled and cut into quarters
-2large eggs
-½ cup all-purpose flour
-1teaspoon fine sea salt, plus more for sprinkling
-1teaspoon baking powder
-½ teaspoon freshly ground black pepper
-Safflower or other oil, for frying
+## Classic Potato Latkes
 
+These crispy, golden potato pancakes are a classic. The key to success is squeezing as much moisture as possible out of the potatoes and onions!
 
-Step 1
-Using a food processor with a coarse grating disc, grate the potatoes and onion. Transfer the mixture to a clean dishtowel and squeeze and wring out as much of the liquid as possible.
+---
 
-Step 2
-Working quickly, transfer the mixture to a large bowl. Add the eggs, flour, salt, baking powder and pepper, and mix until the flour is absorbed.
+### Ingredients
 
-Step 3
-In a medium heavy-bottomed pan over medium-high heat, pour in about ¼ inch of the oil. Once the oil is hot (a drop of batter placed in the pan should sizzle), use a heaping tablespoon to drop the batter into the hot pan, cooking in batches. Use a spatula to flatten and shape the drops into discs. When the edges of the latkes are brown and crispy, about 5 minutes, flip. Cook until the second side is deeply browned, about another 5 minutes. Transfer the latkes to a paper towel-lined plate to drain and sprinkle with salt while still warm. Repeat with the remaining batter.
+* **2 large Russet potatoes** (approx. 1 lb), scrubbed and cut lengthwise into quarters
+* **1 large onion** (8 oz), peeled and cut into quarters
+* **2 large eggs**
+* **½ cup** all-purpose flour
+* **1 tsp** fine sea salt (plus more for sprinkling)
+* **1 tsp** baking powder
+* **½ tsp** freshly ground black pepper
+* **Safflower oil** (or other high-heat oil) for frying
+
+---
+
+### Directions
+
+#### 1. Grate and Dry
+
+Using a food processor fitted with a **coarse grating disc**, grate the potatoes and onion. Immediately transfer the mixture to a clean dishtowel. Squeeze and wring the bundle forcefully to remove as much liquid as humanly possible.
+
+#### 2. Mix the Batter
+
+Working quickly (to prevent the potatoes from browning), transfer the dried mixture to a large bowl. Add the eggs, flour, salt, baking powder, and pepper. Mix until the flour is fully absorbed and no dry clumps remain.
+
+#### 3. Fry until Golden
+
+* Heat about **¼ inch of oil** in a medium heavy-bottomed pan over medium-high heat.
+* Test the heat: a drop of batter should sizzle immediately.
+* Drop heaping tablespoons of batter into the pan, working in batches to avoid crowding.
+* Use a spatula to flatten them into discs.
+* **First Side:** Cook until the edges are brown and crispy (about 5 minutes).
+* **Second Side:** Flip and cook until deeply browned (about 5 more minutes).
+
+#### 4. Drain and Season
+
+Transfer the latkes to a plate lined with paper towels to drain. **Sprinkle with salt while still warm** to ensure it sticks. Repeat with the remaining batter.
